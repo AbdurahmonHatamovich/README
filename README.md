@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **muruvat@gmail.com**
 
-- 📄 Know about my experiences [https://europa.eu/europass/eportfolio/api/eprofile/shared-profile/abdurakhmon-khayrullayev/2288aba3-55ce-402b-99e8-2c59dc19b773?view=html](https://europa.eu/europass/eportfolio/api/eprofile/shared-profile/abdurakhmon-khayrullayev/2288aba3-55ce-402b-99e8-2c59dc19b773?view=html)
-
 - ⚡ Fun fact **I think I am hardworking**
 
 <h3 align="left">Connect with me:</h3>
